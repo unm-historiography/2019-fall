@@ -1,4 +1,4 @@
-# h1 The Christian challenge to Graeco-Roman Historical Perspectives 
+#  The Christian challenge to Graeco-Roman Historical Perspectives 
 04 Sep 2019
 #2 Questioner 
 1.	Who was the first to have the idea of “the five kingdoms”? 
