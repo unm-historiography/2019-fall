@@ -1,0 +1,9 @@
+# Questions for A Changing Consciousness of History
+
+1.  On **page 74**, Lemon talks about that from the fifth to the fourteenth centuries philosophy of history continued to focus about spiritual salvation. Then latter on he talks about **pre-modern** thinking about focusing more on life then the afterlife. *How would our current speculative philosophy of history have changed from previous notions to what it is today and how has that changed our view of the importance of history?* 
+
+2. Lemon states that " After all, if in good speculative mode one ' knows' what history 'is all about', one is less likely to be curious about its ' details" ( **Pg. 75**). *Taking his quote, should institutions focus on teaching facts or training curiosity?* 
+
+3.  The **Italian Renaissance** brought back to light the notion about thinking about the humanities. It is during this time that lemon informs us the first true idea of thinking about how history was wrote and how to write history ( **pg 78**).  *What was the importance for this class to read about previous idea's about history if this is where ( arguably) the birth of early concepts of historiography occurs?*
+4. The Renaissance created many new perspectives including **Culture Relativism**, which increased the exposure to the knowledge of other countries. This new knowledge allowed Europeans to expand past a biblical sense of the world ( **pg 82**). *Should we, as historians then assume that all previous thinkers were unable to think outside of the scope of Christianity and the church?*
+5. In page **89**, Lemon argues that though historians tend to group events into ages to make sense of the changing times, these titles can be misleading. He then states that these grouped titles are hard for society to replace because of their impressions. *Should historians continue to use these terms such as The Dark Ages or The Age of Enlightenment?*
