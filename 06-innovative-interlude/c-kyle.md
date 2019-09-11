@@ -22,7 +22,7 @@
 
 ### Rationalism
 
-- Rene Descartes is accredited as forming the skeptical tradition of scientists and philosophers that “are not prepared to consider any idea as true unless [he] was satisfied that the method of acquiring knowledge was indisputably correct” (113). In other words, it is the reluctancy to accept facts as being truth and drawing conclusions based on the known facts. He believed that rationale was based on the process deduction, innate to the human mind, to rule out presuppositions in determining the truth of natural things. As Lemon states, “Reasoning is the process of drawing out the logical implications of definitions” (113). Nothing was true unless it could be “proved through the demonstration certainty of deductive reasoning” (121).
+- **Rene Descartes** is accredited as forming the skeptical tradition of scientists and philosophers that “are not prepared to consider any idea as true unless [he] was satisfied that the method of acquiring knowledge was indisputably correct” (113). In other words, it is the reluctancy to accept facts as being truth and drawing conclusions based on the known facts. He believed that rationale was based on the process deduction, innate to the human mind, to rule out presuppositions in determining the truth of natural things. As Lemon states, “Reasoning is the process of drawing out the logical implications of definitions” (113). Nothing was true unless it could be “proved through the demonstration certainty of deductive reasoning” (121).
 
 ### Religion and Biblical Criticism
 
