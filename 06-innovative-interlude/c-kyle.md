@@ -18,7 +18,7 @@
 
 ### Empirisism
 
-Consequences of ‘new learning’ allowed scientists to explore findings centered on the framework of Empiricism. Empiricism is based on experimentation, observation, and rationale of studying the natural world. In other words, contrary to the rationale of Renaissance humanists or classical theories, this new philosophical though emerged that was based on “discovering a new set of presuppositions based on the methodology of actual observation combined with repeatable experimentation” (112). 
+- Consequences of ‘new learning’ allowed scientists to explore findings centered on the framework of Empiricism. Empiricism is based on experimentation, observation, and rationale of studying the natural world. In other words, contrary to the rationale of Renaissance humanists or classical theories, this new philosophical though emerged that was based on “discovering a new set of presuppositions based on the methodology of actual observation combined with repeatable experimentation” (112). 
 
 ### Rationalism
 
