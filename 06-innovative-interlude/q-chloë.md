@@ -1,0 +1,7 @@
+**Question #1:** Lemon explains in this chapter that “the seventeenth century witnessed the beginnings of a disentangling of what we now call ‘science’ (‘the natural sciences’) from the general amalgam of ‘philosophy’” (111). Based on anecdotal or other evidence, is this separation still the case today? Or is the reintegration of an interdisciplinary approach changing this structure?
+
+**Question #2:** Biblical criticism, previously extremely taboo, was beginning to exist more openly during the seventeenth century. Has this taboo ever actually gone away? Are modern historians ‘allowed’ to critically analyze any religious texts at the same level as other manuscripts?
+
+**Question #3:** This chapter analyzes the movement in thinking around several different disciplines. Does each of these provide equal influence in Vico’s work? For example, does the Scientific Revolution itself influence as much as, say, the discipline of history?
+
+**Question #4:** The discipline of history during this period underwent a certain amount of standardizing, and historians were encouraged to “write in a sober manner appropriate to a dispassionate account of the past rather than seek to gratify readers’ tastes for literary development” (119). To what extent does this influence apply today? While we have structures in place to try and prevent historical inaccuracies, there is also a necessity to grab the attention of readers in order to put food on the table. Does this enhance or devalue our historical accounts?
