@@ -1,0 +1,8 @@
+# Questions on Vico’s Philosophy of History
+
+## Language and the Master Key
+Vico’s Master-key seems a bit heady to interpret, but I think he’s essentially looking at history from a linguistic approach whereby we interpret primary sources (such as Homer) by analyzing how they would have used language in their particular time and place. With this in mind, can we ever understand an historic source if we do not intimately know its language? 
+## Colonialism and Cultural Relativism
+Putting Vico within the context of European exploration and colonialism, how much of his perspective on cultural relativism was influenced by growing knowledge of the ‘New World’? As thinkers from around Europe tried to interpret these new cultures, languages, and natural resources, did they employ Vico’s new relativist thinking, considering their histories “in terms of the cultures from which they emerged” (p129)? I feel like this is more of a characteristic of the revisionist histories of today. Did it start with Vico? Did it catch on at all during his time?   
+## The Meaning of Truth
+Let’s consider the battle between Cartesian understandings of truth and those of Vico. Descartes argued that truth is what “we ascribe to statements which follow logically from definitions” (truth is what we say it is) while Vico believed that truth “is the product of making or doing” (p131). Vico’s perspective surprised me after learning of his philological approach to understanding history. How do we reconcile his linguistic master-key with his definition of truth? What changed in the less than one hundred years between the lives of these two thinkers to account for a shift in the understanding of truth?  
