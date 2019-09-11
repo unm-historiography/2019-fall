@@ -9,6 +9,8 @@ As I recount the years that I have been a student of history (longer than I care
 
 Vico’s work should inspire all historians to be far more cognizant of how we present and defend our ideas and in the reporting of history.  His innovatively synthetic approach should guide us in minimizing our personal involvement in the historical materials that each of us produces.
 
-[^1] M.C. Lemon. _Philosophy of History_ (New York: Routledge, 2003), 107
+[^1] M.C. Lemon. _Philosophy of History_ (New York: Routledge, 2003), 107.
+
 [^2] Lemon, 108-120.
+
 [^3] Lemon, 126.
