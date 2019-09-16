@@ -2,7 +2,7 @@
 
 * Should language play a significant role in how intro guides for history are written? i.e. should simplest terms be used the most? 
 
-* What kind of assumptions should one make about the knowledge of his/her readers and their knowledge or grasp about certain concepts of history? 
+* What kinds of assumptions should one make about the knowledge of his/her readers and their knowledge or grasp about certain concepts of history? 
 
 
 * How can concepts of history as well as philosophy be introduced to student’s unfamiliar with such topics in a way that does not overwhelm them with information, yet still engages their curiosity with such topics? 
