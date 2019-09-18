@@ -1,4 +1,4 @@
-#Comments on Chapter 8
+# Comments on Chapter 8
 
 Lemon at the beginning of the chapter seems very upset with the neglect Vico’s work was going through during the 20th century. Saying that his work never played a roll in the intellectual history, and the neglect only grew with the passing times of the Enlightenment. Lemon states that, “Vico’s ideas sat uneasily with the developing intellectual fashion.” **(p. 168)** and what’s interesting was his outlook on the idea of rationalism, and with the work of other French Scholars this helped give birth to the idea of **Philosophy of History**. 
 
