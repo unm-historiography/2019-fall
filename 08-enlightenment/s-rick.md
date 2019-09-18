@@ -1,4 +1,5 @@
-# Speculative Philosophy of History During the Enlightenment
+# Speculative Philosophy of History 
+# During the Enlightenment
 ### A Summary
 ---
 1.	**Introduction**
