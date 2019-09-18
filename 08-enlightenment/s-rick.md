@@ -24,7 +24,7 @@ Burke, rejecting the ‘rationalization’ of history, was _an intuitive thinker
 
 6.	**Conclusion**
 
-In his conclusion, Lemon foreshadows the coming chapter on Hegel.[18]  In quoting Sabine, lemon makes it clear that while **Burke**’s ideas originate from an man of “powerful intelligence”, “he **could not have given systematic form to them**.”  What Burke intuited, Sabine and Hegel later rationalized the “logic of history.”[19]  Lemon leaves the reader with his typical ‘_you decide_.’
+In closing, Lemon foreshadows the coming chapter on Hegel.[18]  In quoting Sabine, lemon makes it clear that while **Burke**’s ideas originate from an man of “powerful intelligence”, “he **could not have given systematic form to them**.”  What Burke intuited, Sabine and Hegel later rationalized the “logic of history.”[19]  Lemon leaves the reader with his typical ‘_you decide_.’
 
 ### Footnotes
 [^1] M.C. Lemon. _Philosophy of History_ (New York: Routledge, 2003), 169.
