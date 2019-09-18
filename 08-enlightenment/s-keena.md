@@ -12,7 +12,7 @@ Early man lived in 'pristine ignorance', allowing _natural_ characteristics of h
 
 #### Inequality and the 'Revolutions' of Man
 
-Man started as little more than animals, then progressed to the **'noble savage'** which was a morally deprived, yet happy human. Competition and scarcity forced improvement and dwellings, which divided families and gave men and women different roles. Then metallurgy and agriculture caused men to lose their independence to labor. The _natural state_ of man was replaced with war. Rich men created laws to protect themselves and their assests, creating the major equality divide. Human society will end due to a tyrant and become permanently unstable _(NOT CYCLICAL)_.
+Man started as little more than animals, then progressed to the **'noble savage'** which was a morally deprived, yet happy human. Competition and scarcity forced improvement and dwellings, which divided families and gave men and women different roles. Then metallurgy and agriculture caused men to lose their independence to labor. The _natural state_ of man was replaced with war. Rich men created laws to protect themselves and their assets, creating the major equality divide. Human society will end due to a tyrant and become permanently unstable _(NOT CYCLICAL)_.
 
 #### The Social Contract
 
@@ -31,7 +31,7 @@ Belief in human progress as the search for pleasure and happiness, acting as a _
 **Ten Stages** of history defined in _Esquisse_.
 1. Tribal: Hunter/fisher societies
 2. Agriculture: Emergence of priesthood
-3. Division of labor: Emergence of artisans, traders, alphabet, and fuedalism
+3. Division of labor: Emergence of artisans, traders, alphabet, and feudalism
 4. Intellectual achievements of Greeks
 5. Roman progress of Sciences
 6. "Darkness": Fall of Rome - 11th cent.
