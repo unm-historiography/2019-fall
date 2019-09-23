@@ -69,67 +69,131 @@ With history, as with all things, timing is as influential as the message.  Cond
 FOOTNOTES
 
 [^1] Enlightenment
+
 [^2] Jeremy D. Popkin. "From Herodotus to H-Net: The Story of Historiography," (New York and Oxford: Oxford University Press, [2016], 2016), 57.
+
 [^3] Marxism
+
 [^4] Karl Marx and Frederick Engles. _The Communist Manifesto_. (International Publishers Co., 2014).
+
 [^5] Karl Marx
+
 [^6] Frederick Engles
+
 [^7] Manifesto of the Communist Party
+
 [^8] 1847 (significance)
+
 [^9] Karl Marx and Frederick Engles. _The Manifesto of the Communist Party_, trans. Samuel Moore with Frederick Engles. (Moscow: Progress Publishers, 1969 [originally pub. 1848]), 8. https://www.marxists.org/archive/marx/works/download/pdf/Manifesto.pdf. Accessed 17 September 2019.
+
 [^10] Marx and Engles 2014, 30.
+
 [^11] Marx and Engles 2014, 89; Marx and Engles 1969, 15, 54.
+
 [^12] Niccolò Machiavelli
+
 [^13] Niccolò Machiavelli. _The Prince_ (with related documents). Edited by William J Connell, 2016. 
+
 [^14] E.P. Thompson
+
 [^15] Exploitation
+
 [^16] E.B. Thompson. “Exploitation”, _The Houses of History: A Critical Reader in Twentieth-Century History and Theory_. (New York: New York University Press, 1999), 46.
+
 [^17] Marx Engles 2014, 16.
+
 [^18] Bourgeoisie
+
 [^19] Proletariat
+
 [^20] Marx and Engles 2014, 10-11
+
 [^21] Thompson, ??.
+
 [^22] Maslow’s Hierarchy of Needs
+
 [^23] Tom Rockmore. “Marx.” _A Companion to the Philosophy of History and Historiography_,(2009, 488–97), 490.
+
 [^24] Thompson, 54.
+
 [^25] Ibid., 47.
+
 [^26] Ibid., 55.
+
 [^27] Ibid., 55.
+
 [^28] French Revolution
+
 [^29] Popkin, 71.
+
 [^30] Johannes Gutenberg
+
 [^31] Popkin, 53-54.
+
 [^32] Vladimir I. Lenin. What Is to Be Done? [Burning Questions of Our Movement] (Martino Fine Books, 2013), 20-21.
+
 [^33] Vladimir Lenin
+
 [^34] Lenin, 20-21.
+
 [^35] Marx and Engles 2014, 27.
+
 [^36] What is to be Done?
+
 [^37] Lenin, 28.
+
 [^38] Ibid., 31-35.
+
 [^39] “emancipation of the workers”
+
 [^40] Marx and Engles, 6, 20.
+
 [^41] Gordon Watkins
+
 [^42] Emile Vander Velde
+
 [^43] Popkin, 70.
+
 [^44] Joseph Stalin
+
 [^45] National Question
+
 [^46] Joseph Stalin. Marxism and the National Question (CreateSpace Independent Publishing Platform, 2013), 12-13.
+
 [^47] Marx and Engles, 20.
+
 [^48] Gordon S. Watkins. “Revolutionary Communism in the United States.” American Political Science Review 14, no. 01 (February 1920, 14–33), 20. https://doi.org/10.2307/1945723.
+
 [^49] “1919 New York Primary elections…”
+
 [^50] Watkins, 14.
+
 [^51] Ten Years of Socialism in Europe
+
 [^52] Emile Vandervelde. “Ten Years of Socialism in Europe.” Foreign Affairs 3, no. 4 (1925): 556-5??, 560. https://doi.org/10.2307/20028399.
+
 [^53] Vandervelde, each country will have its own historiographical writing and its owm variety of Marxism.
+
 [^54] Revolutionary Communism in the United States
+
 [^55] Socialist Party
+
 [^56] Communist Party
+
 [^57] Watkins, 20.
+
 [^58] Ibid., 20.
+
 [^59] Ibid., 26.
+
 [^60] Ibid., 19.
+
 [^61] Ibid., 14.
+
 [^62] Anna Green and Kathleen Troup. The Houses of History: A Critical Reader in Twentieth- Century History and Theory (New York: New York University Press, 1999), 277-278.
+
 [^63] Linden, Marcel van der. “The ‘Globalization’ of Labor and Working-Class History and Its Consequences.” International Labor and Working-Class History, no. 65 (2004), 136–56), 136-149.
+
 [^64] B.B. Kendrick
+
 [^65] B.B. Kendrick. “The Problem of Historical Interpretation.” The North Carolina Historical Review 2, no. 1 (1925): 19–29, 27.
