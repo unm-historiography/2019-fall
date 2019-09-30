@@ -6,4 +6,4 @@
 
 3.) Ranke believed that defining the complex historical process of world history into ‘concepts’ was arbitrary. He believed this method was the philosopher’s way of conceiving of history in a “logical process”. Furthermore, he believed that this logical process leaded to “pantheism” (historical progress). Does the creation of concepts to conceive of history lead us to believe in pantheism? How do the theoretical frameworks of study between philosophers and historians change the meaning behind history?
 
-4.) As art is perceived differently in the eyes its viewers, how would Ranke reconcile the inconsistency of the meaning of history through individual spiritual apperception with his stance on historical continuity?
+4.) If art is perceived differently in the eyes its viewers, and Historiography resembles art... how would Ranke reconcile the inconsistency of the meaning of history (historiography as art) through individual spiritual apperception with his stance on historical continuity?
