@@ -1,5 +1,5 @@
 # Week 7 Questions
-- How is Hegel different compared to Ranke. Where do they differ the most?
+- How is Hegel different compared to Ranke? Where do they differ the most?
 
 - Why do you think the French Revolution Brought so much change to the importance of history and preserving it? 
 
