@@ -42,4 +42,4 @@ In addition to von Ranke’s creation of the historical seminar,[10] the signifi
 
 [^11] Gil, 390-391.
 
-[^12] Gil, 391;
+[^12] Gil, 391.
