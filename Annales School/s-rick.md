@@ -1,10 +1,10 @@
 Week 7: The ‘Annales School’: Pieces by Anna Green and Kathleen Troup as well as Fernand Braudel
 
-—
+---
 title: Summary: The ‘Annales School,’ (Its Fluid Nature and Inconsistencies)
 author: Rick Rockett
 date: 2017-10-01
-—
+---
 
 While entitled “The Annales,” the Green and Troup chapter is largely focused on Fernand Braudel, and is accompanied by a section of Braudel’s work _The Mediterranean and the Mediterranean World in the Age of Philip II_[1] called “Mountain Freedom.”  While this summary will touch on the latter work, I will focus on the Green and Troup piece.
 
