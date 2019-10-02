@@ -8,7 +8,7 @@ This shift of historical focus from the center of powers to the ‘many’ in or
 
 # The Annales
 
-The Annales School foundations were established when the French journal Annales d’historie économique et sociale began publication in 1929. Led by Strasbourg professors Febvre and Bloch to provide history not simply based on politics and diplomacy, with material, social, and cultural aspects more heavily focused on. While these are necessary to record accurate history, can they ever be viewed as positive if they are not rooted with bigger-picture political and diplomatic foundations? 
+The Annales School foundations were established when the French journal Annales d’historie économique et sociale began publication in 1929. Led by Strasbourg professors Febvre and Bloch to provide history not simply based on politics and diplomacy, but with material, social, and cultural aspects more heavily focused on. While these are necessary to record accurate history, can they ever be viewed as positive if they are not rooted with bigger-picture political and diplomatic foundations? 
 
 Braudel’s influence on history based on quantified data was a huge step for historians. If not for his influences, do you think collaborative history would be as far as it is in the present day? Would there be a more, or less accurate ‘total history’?
 
