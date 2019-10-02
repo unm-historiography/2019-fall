@@ -2,7 +2,7 @@
 
 - The Annales ‘school,’ named for the title of their journal, *Annales. Histoire, Sciences Sociales*, broke down divisions between history and other social sciences, “arguing that **all aspects of a society were part of historical reality**” (88).
 
-- Fernand Braudel’s approach to time and space, similar to some contemporary anthropological work, **described temporal and geographicaphenomena in relative terms, and explored the relationships between geographic features and the people who lived on or around them**, thus the Mediterranean Ocean is said to stretch as far north as the Baltic, and East to India, not literally, but in terms of the influence of that sea and the societies who grew and died along its shores. (88-90)
+- Fernand Braudel’s approach to time and space, similar to some contemporary anthropological work, **described temporal and geographical phenomena in relative terms, and explored the relationships between geographic features and the people who lived on or around them**, thus the Mediterranean Ocean is said to stretch as far north as the Baltic, and East to India, not literally, but in terms of the influence of that sea and the societies who grew and died along its shores. (88-90)
 
 - Braudel’s successors continued his heavy use of statistics, and took that focus even further as new tools such as early computers began to be available, **developing the field of quantitative history** (91)
 
