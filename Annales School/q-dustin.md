@@ -1,6 +1,6 @@
 # Iggers
 
-The “role political beliefs play in the scholarship of historiography” of both old and new is a very interesting correlation (p.102). Is there sufficient evidence that this correlation also produces causation for certain major historical events, and how they were recorded, and or published and prescribed in the academia? 
+The “role political beliefs play in the scholarship of historiography” of both old and new is a very interesting correlation (p.102). Is there sufficient evidence that this correlation also produces causation for certain major historical events, and how they were recorded, and or published and prescribed in academia? 
 
 This shift of historical focus from the center of powers to the ‘many’ in order to “rescue the unknown from oblivion”, so that there are Histories, and not a History (p.103) Does anyone else think that for national/international history to be correctly interpreted and documented it needs to be from someone outside of the many? I would not select Joe Schmoe with a 9-5 job and conventional family to give his opinion in the form of published and prescribed academics, would you? Kocka would side with me as he stated “concentrating on the small rather than the large renders historical knowledge impossible and leads to the trivialization of history (p.105).
 
