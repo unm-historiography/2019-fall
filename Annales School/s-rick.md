@@ -2,9 +2,15 @@
 
 While entitled “The Annales,” the Green and Troup chapter is largely focused on Fernand Braudel, and is accompanied by a section of Braudel’s work _The Mediterranean and the Mediterranean World in the Age of Philip II_[1] called “Mountain Freedom.”  While this summary will touch on the latter work, I will focus on the Green and Troup piece.
 
+## The Annales School
+
 Conceptually, the **Annales school** foundations were established when the French journal _Annales d’historie économique et sociale_ began publication in 1929[2] by [Lucien Febvre]https://en.wikipedia.org/wiki/Lucien_Febvre) and [Marc Bloch](https://en.wikipedia.org/wiki/Marc_Bloch).  Utilizing the multi-layered approached of [Fernand Braudel](https://en.wikipedia.org/wiki/Fernand_Braudel), Fevbvre and Bloch were seeking to dismantle the artificial barriers that existed between the various disciplines within the Humanities and Social Sciences, with historians leading the way[3] and driven by a focus on quantitative analysis of history, as guided by Braudel’s followers.[4]. 
 
+## Geographical Deternminism
+
 Febvre adopted the perspective of examining history from a geographical perspective and its “effect [on the] material situation on social, cultural and political development.[5]  In contrast, Bloch took to analyzing the “material structures of societ[ies]” including ‘the environment as part of the material world.”[6]. This wasn’t a new concept, proposed by [Vidal de la Blache](https://en.wikipedia.org/wiki/Paul_Vidal_de_La_Blache) and appearing issues of _Revue de synthèse historique_, published by [Henri Berr](https://en.wikipedia.org/wiki/Henri_Berr).
+
+## Tides of Time
 
 As a student of Febvre’s, Braudel, in his thesis _the Mediterranean and the Mediterranean World in the Age of Philip II_, presented his temporally layered approach to history, breaking from the academically accepted “objective empirical methods” of his peers.  His metaphor of an ocean described three layers to historical time, independently “aligned with [their own] historical topics”:[7]
 
@@ -14,13 +20,21 @@ As a student of Febvre’s, Braudel, in his thesis _the Mediterranean and the Me
 
   - **Short Duration** (‘the ephemera of history’ or _historie événementielle_) - Equated to the foaming crests that “the tides of history carry on their strong backs.”  This is the ‘down in the weeds’ concern of “traditional political and diplomatic history.”
 
+## Structuralism
+
 While Braudel enumerated the ‘three cycles’ he intimated greater stratification of time, nuances between the three layers.  Critics of his structural approach to time and the constant topical elements of each cite the omission of key areas—e.g. agriculture, culture, law, and religion.[8].  They also took issue with _The Mediterranean_ as a ‘total history’ both in structural terms and the aforementioned topical ’deficiencies.’
 
 Also missing from Braudel’s structuralist approach is the influence of the individual.[9]  Likely influenced by his contemporary [Claude Lévi-Strauss](https://en.wikipedia.org/wiki/Claude_L%C3%A9vi-Strauss)[10], Braudel’s application of [structuralism](https://en.wikipedia.org/wiki/Structuralism) effectively divorced individual influences and instead placed exceptional importance on the mental structures constructed by and for societies.  The greatest external influence on these ‘structures’ was, to mind of Braudel and later adherents to the ‘_Annales_ school,’ the **physical geography**—“the environment”—that dictated their formation.
 
+## "A New Paradigm" and The Critics
+
 Through the synthesis of past ideas, Braudel created a “**novel paradigm of historical writing**.”  This shift led to a focus on applying  statistical data to the study of history.[12]. This has led critics to decry _Annales_ adherents for studying “only those things which can be counted,”[13] and with a ‘fascination with hard data [that] has relieved _Annales_ historians of the task of critically confronting past and present.” [14].  Braudel’s use of description in place of explanation has left many historians questioning the the historical utility of his work.[15]  The inattention to the role of women and “gender as an analytical category”[11] has further fueled the criticism _Annales_ has received.
 
+## Evolution?
+
 To date, there have been at least four ‘generations’ of proponents of _Annales_ scholars[16] with each succeeding class transforming the ‘philosophy of the school.’ _Annales_ is, in the eyes of non-adherents, a ‘moving target’ without clear and consistent definition.[17]  The **lack of an enduring process** has left many professionals in the field of history and other areas of study questioning its validity. 
+
+## Contribution
 
 Even with the criticism levied on _Annales_, Braudel has expanded the tools available used to reconstruct the past.[18]. While subjective and emotionally evocative, he has provided a poetic and personal approach that engages readers.  His copious use of archival material has reinforced the **importance of primary source material** and the documentation of its use.[19]
 
