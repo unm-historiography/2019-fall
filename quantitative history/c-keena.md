@@ -1,0 +1,17 @@
+# _Quantitative History_
+
+### Are They Different or Supplementary?
+
+Based on the readings, I did not get the impression that quantitative history was fundamentally _different_ than 'traditional' history. Instead, I interpreted quantitative history as a form of supplementary history which, in the late nineteenth through twenty-first centuries, branched off to become its own discipline. Most so in the Green and Troup chapter, I understood why quantitative history exists and why it was useful, but I kept asking myself, "Okay, then what?" So, you have all of this data and assessed a long-term historical change, but what are you doing with it? What are you saying about it? It feels like quantitative data fills more characteristic 'gaps' in historical analysis, but it does not actually say or do anything. It just _is_ and then ends abruptly.
+
+### "Soft Data Produced From Hard Data"
+
+Quantitative history opened a new door for historians seeking to make their discipline more scientifically viable after the Scientific Revolution. The Scientific Revolution emphasized empirical, objective analysis of 'facts'. While this works for many sciences, including other social sciences, such as economics, trying to apply these seventeenth century concepts to history has presented more issues than solutions. While hard data is useful, there is only so much that can be done with or said about it on its own. Yet, if quantitative historians try to infer ideas about that data then they are too philosophical or traditional. I fear that while this new door looked exciting from the outside, it has inevitably led to another closet for historians to back out of and try again for balance rather than an override of the discipline.
+
+### What's Next?
+
+While history is being developed in so many new ways due to digitization of material and ease of record-keeping there are many obstacles ahead. The first being that there will now be **more data than can be interpreted as 'useful'** by quantitative historians. When only a few remaining documents remained of the past, it was much easier to define what was 'reliable' or 'useful' and what was not; however, how will historians be able to determine this moving forward with the massive quantity of potentially viable material being amassed daily? 
+
+Second, the move towards the use of quantitative data arises concerns of the **de-humanization of history**. When humans are quantified based on stats and biological characteristics, do we run the risk of ignoring the mind, agency, irrationality, unpredictability, etc.? This use of data turning humans into 'units' of time and space seems eerily similar to the way slaves were described on sales records, described in Anderson p. 253. 
+
+Lastly, quantitative historians seem **resistant to acknowledge the subjectivity of time and context**. While time or an event may be measured by historians a certain way ("How is it bounded and measured; what is a turning point; what is a transition; what is a conjuncture or a rupture; and how is a period of time organized and bounded."(Anderson p. 255)) that does not mean that is how time or an event was measured/viewed by those living through it.  This, also, ignores that time is relative to the longitude of the data being study. An entire study can span three centuries of a nation or one individual's lifetime; time is entirely subjective to the abundance of data and interest/motivation of the historian.
