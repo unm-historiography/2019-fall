@@ -1,3 +1,9 @@
+# Summary of Intro Part 2 
+- Theoretical and Analytical both have different approaches and the lines can get blurred. Philosophical vs. Understanding. 
+- Historians need to remain nonobjective so they have to evaluate why they’re studying history.
+- Theoretical and Practical studies- Difference is already knowing what you’re doing and furthering your education, and the other is not knowing what you're doing at all and learning.
+
+
 # Summary of Chapter 12
 ### **Theoretical Preliminaries**
 ##### ***Words and reality*** ##### 
