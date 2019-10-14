@@ -1,0 +1,7 @@
+# THE ‘**WHAT IS HISTORY ?**’ DEBATE
+1.	In dealing with Evidence, inference, and facts, **how can we ever be sure of anything?**
+If every history is written by a historian who has unconscious biases, for example, “is a white, middle-class male, and American” (p.303). How do we know that the puzzle pieces of the past were reconstructed correctly? 
+
+2.	Being that items in the ‘*present*’ are treated as inferences/evidences of the past that we rest and measure the reliability of historical-happenings seems the only rational way to ever see the past as it actually was. **However, can we actually state that these historical reconstructions are True?** (p.305).
+3.	Scientific causality employed in ‘finding the cause and effect’ of historical events is “agreed upon by most theorists that on occasion it should be used, but not a model which characterizes their explanatory discourse” (p.308). **Why is this?** Lemon’s two reasons why are not sufficient in my opinion. 
+4.	‘Covering-laws’ “even where historians do not subscribe to any explicit overall ‘theory’ and understand themselves to be explaining particular events with individual discreteness, they nevertheless (usually unconsciously) exploit ‘general laws’ about human behavior” (p.309-310). **In order to find the “Truth” must we employ and implement his/her criticizers biases and attempt to again ‘infer’ what actually happened by combining the two to compare commonalities?** 
