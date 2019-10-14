@@ -1,0 +1,15 @@
+## Analytic Philosophy of History
+
+-	The -_difference between historical methodology and analytic philosophy of history._ Like with everything method we have studied this semester both of these ideals can be classified as extremely different, but neither one can stand alone because they work best with support from the other. **Historical methodology** is the straight forward approach where it follows the regular protocol in terms of looking at the cause/effect, narrative, and so on when events of history. The book gives the example of building a house and how it doesn’t try to reinvent the wheel, if it ain’t broken don’t fix. People in this camp will work within the normal framework of how normal houses are built. **Analytic philosophy of history** looks more into the idea of a house. They broaden the box they operate in and look into what could make the house better while comparing it to other ‘ideas’ of houses. Pg 282-283.
+
+-	_The art of observation._ This point is made very clear that to be a master in the art of **observation** is to not be actually involved in the event. Obviously the person observing has to be present in the event to observe it, but their sole purpose is to understand what is happening. The person has not rooting interest in the event and has no ulterior motivation in way of having fun or seeing a friend. Pg 286
+
+## What is History
+
+-**Words** are used to denote or ‘single-out’ something in the world. The book describes how we are able to communicate while cutting out a lot of explaining by using words we all understand. The book uses the example of the word chair. When you say chair you will most likely not have to explain a chairs purpose or the idea of a chair. With that being said is being is able to articulate what they have found the most important skill of an historian?
+
+-A **narrative** is a story being told where events happen in a sequence of cause and effect. One event or its outcome leads to the next event and so on. When telling these stories they are normal put in the structure of event A happened and then event B happened. Is there an event that wasn’t part of a narrative where it just happened with no prior events preceding it?
+
+-When talking about how information is acquired from the past the book talks about the different methods that is it done. The first example is from hearsay or a history book. When it mentions history book it has in parenthesis ‘hopefully better.’ What instance could you see hearsay being a more reliable sources of information over a history textbook?
+
+-The book take a deep dive in looking at facts and their limitations. Looking at **written sources** they prove valuable, but have limitations in they include what the reader thinks is important and it is hard to get a sense of tone from a reading. Looking at film the viewer gets the story that the filmmaker deems important and serves the purpose of the story.  Evidence and its sources are an important part of understanding history. The book stats that we should insist source based and not source driven. What would a history that is source driven lead to?
