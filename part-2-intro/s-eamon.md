@@ -1,0 +1,7 @@
+# Summary: Analytic Philosophy of History
+
+- Lemon states that Analytic Philosophy of History “enquires into history as the *discipline* (or ‘form’) which discovers and understands [the] past (281). The questions that this branch of philosophy of history poses are much more tied to means and methods than speculative philosophy of history. It **“critically analyses the thinking behind the ways in which historians undertake their discipline”** (281). However, it is more abstract than what Lemon describes as the “nuts and bolts” questions of *historical methodology* (282). As illustrated by his house-building metaphor, analytic philosophy of history is necessarily theoretical.
+
+- That being said, it is possible for the analytic philosophy and the more mundane methodologies of history to become much more intertwined. Lemon informs us that this happens when there are periods of change within the field. The example he used was that of 16th-century historian Jean Bodin, but it seems clear that we ourselves are in a period where methodologies are meeting philosophies, not only in wrestling with postmodernism as Lemon mentions, but also with the onset of digital history.
+
+- The last major point points out that as history is a theoretical subject to begin with, analytical philosophy, or “reflection on one’s own thinking”, as Lemon so neatly sums it up, should be intrinsic to the field, not regarded as a related and beneficial but nonetheless separate activity 285-286.
