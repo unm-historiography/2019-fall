@@ -1,4 +1,4 @@
-#Comments on "What is History **For**?"
+# Comments on "What is History **For**?" #
 
 - Right off the bat, it seems to me that the central question of this chapter is one that is not unique to the analytical branch of philosophy of history. Indeed, from my recollection of the first half of the book, most of the speculative philosophers of history were also wrestling with this question, though they approached it from a different direction, so to speak. 
 
