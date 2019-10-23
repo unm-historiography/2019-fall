@@ -1,0 +1,21 @@
+# The Postmodernist Challenge 
+**How have our readings affected the way you think about history?**
+
+I know that you specifically said not to answer these questions one by one, but, it just kinda worked out that way. 
+Prior to this course, I took the historical knowledge that I attained through the U.S. educational system to be highly factual, or in other words, to be the truth. Since the beginning of this Historiography course, everything I thought to be factual, is now in paradoxical limbo. The readings in our PoH by Lemon, plus our in-class-discussions have made me change the way in which I choose to accept any information, and will most likely persist in doing so for the rest of my days. An integration of speculative and analytical methodologies are necessary to even begin to scratch the surface of ‘Truth’. I hope that I do not become over skeptical, as did the Postmodernists. 
+
+**Does postmodern history constitute a historiographical paradigm shift?**
+
+From my reading of chapter 14, along with some online research, I have found the matters below to be ‘true’ about Postmodernism. 
+Postmodernism, a late 20th-century movement characterized by broad skepticism, subjectivism, and relativism. A general suspicion of reason and an acute sensitivity to the role of ideology in asserting and maintaining political and economic power, as defined by Google. 
+Began growing in popularity in the 1980’s and 1990’s, but can be seen as early as the 1940s, in the work of artists such as Jorge Luis Borges. Postmodernism is often associated with schools of thought such as deconstruction, post-structuralism, and institutional critique, as well as philosophers such as Derrida, Foucault, Lyotard, Baudrillard, and Jameson. 
+The term postmodern was first used around the 1870s by John Watkins Chapman who suggested "a Postmodern style of painting" as a way to depart from French Impressionism. This idea then permeated, being adopted in a variety of academic and theoretical disciplines, including cultural studies, philosophy of science, economics, linguistics, architecture, feminist theory, and literary criticism, as well as art movements in fields such as literature, contemporary art, and music. 
+This all being said, I would constitute Postmodernism as a historiographical paradigm shift. Postmodernism contests all aspects of the methodologies of the Modern era. Even though it did not completely eliminate previous schools of thought, Postmodernism was, and, is still practiced by professional scholars and academics. Thus, a drastic change in thought and methodology that was, and, is accepted justifies it being labeled as a paradigm shift.
+
+**Are late twentieth-century ways of writing about history that we’ve discussed a ‘rupture’ from previous historiographies?**
+
+If by ‘rupture’ you mean “a breach of a harmonious relationship” then I would say no. The historiographies prior to the 20th century are conflictual on multiple levels, even when written in the same geographic, time, and culture. One might ask, then why did I answer yes to Postmodernism qualifying as a paradigm shift? I would answer that while Postmodern thought was drastic enough to qualify as a paradigm shift, it did not completely *rupture* those that came before it, it only challenges them. With arguments that the *grand-narrative* is obsolete, and that we must be skeptical of such long periods of time having a master story. As well as Munslow’s book, *Deconstructing History*, that I see as simply another step in the stairs of history. It must be integrated into the methodologies just as speculation and analysis have been.
+
+**Or are they more on a continuum of historiographical change?** 
+
+I think that this is a more fitting conclusion. As in any subject matter, new ideas must arise as the profession would cease to exist without doing so. In order for professional historians to be significant in their field, they must create new ideas. This, weather viewed form a cyclical, or incremental/linear historical standpoint, the fact remains that new ideas must evolve. It was only a matter of time until this ‘postmodern’ view arose. The questioning of ‘facts’ from the past was inevitable. With skepticism comes another side of the coin that cannot easily be refuted, especially since in the field of history, this is fairly contemporary. 
