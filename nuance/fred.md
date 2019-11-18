@@ -1,0 +1,7 @@
+  - Do you reject my premise that this article applies equally well to history?
+  - Is all historical study except the 'universal' histories predominant before Ranke a matter of nuance?
+  - Besides making for a good story, is there value in historical work that simply adds nuance to widely accepted understandings of the past?
+  - How should the scale of a historical study be used in understanding its value? (= what is history for? [see next week])
+  - Is history well served by models? (also: do you need math to have models?)
+  - Will the rise of a digital archive make historical laws more attractive to historians?
+  - How might a digital archive challenge traditional historical authority?
