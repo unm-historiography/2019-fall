@@ -1,0 +1,15 @@
+# Fuck Nuance? "Stuff it"
+
+Nuance, at some level, is _necessary if not essential_ in every aspect of academia and life.  How can we not communicate any subject matter without coloring it or refining it?  Even theories, in any field, are nuanced at some level. The efficacy of this “tool” is, in opposition to the author, of great import.  The issue is more one of how the tool is used, not whether to use it at all.
+
+> Imagine that you need to drive a nail into a board.  The tool with the most utility is clearly a hammer with the type being determined by the kind of nail and the nature of the nail’s function.  Bare with me.  Reaching into the toolbox, you find that your only option is a set of pliers.  The pliers can perform the function of driving a nail into the board, though with considerably more effort and likely marring the board.  Using pliers in place of a hammer is less than ideal and certainly not something you would want to do regularly. _(I gave pause to using a **shovel** as the less than desireable tool in this example)_.
+
+Nuance, like the hammer, is an effective tool when used for the right application, or "correct nail."  When combined with scientific principles (model-building, research methods, or focus on an empirically delimited area) _nuance can add substance and depth to the matter_. Without these foundational principle, as the author argues, nuance feeds generalizations, complexity, and excess granularity to the conversation.
+
+Healy’s claim , based on “_article count_”, that the frequency of the use of the word 'nuance' as an explicit indication of excess just **doesn’t hold water** with me.  That is like saying cars are more dangerous today because more people die in auto accidents than they did in 1913.  There are more vehicles on the road and more people drive than could have been imagined in 1913.  It is fair to say that there have been a far greater number of articles published in the last 40 years that in the preceding period.
+
+In general principle, I deplore the "_over use_" of nuance, as it frequently leads us into a rabbit warren of possibilities without giving birth to any clear idea or proposition.  Nuance for the sake of adding interest without enhancing meaning muddles what we, as historians, strive for: the expansion of knowledge and understanding.  In the careful, meaningful, and informed use of nuance, we can provide greater insight and depth of understanding in our work.  But to come out and say “_fuck nuance_,” as Healy does, I call “**bullshit.**”
+
+Too nuanced, not nuanced enough: this implies that there is some clear distinction one way or the other beyond the proper use of it.  It indicates that there is a “_bright line_” that we cannot cross in adding (or subtracting) it from our work.  Overuse is akin to failing to take a stand: **a firm and defensible position**.  Underuse leaves us with a sense of deprivation, a feeling that something is arguably missing.
+
+Healy, take your argument against nuance and “**stuff it.**”
