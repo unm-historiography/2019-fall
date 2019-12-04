@@ -59,6 +59,17 @@ Good skeleton here, but you need more historiographical meat on the bones.
 
 
 ## Nick
+I find the first paragraph VERY confusing. Read more introductions to M and find a clear one to paraphrase and describe his historical context.
+
+"learning from history, human nature, and fortune"... each of these
+
+"These three ideas have inspired many great works from other great philosophers...": Before you get into details of people who came after M, you should explain what M was doing. Move this towards the end to comment on M's historiographical legacy. 
+
+The quotes by Lemon and McRoberts, etc, I think get in your way throughout the essay. You have a lot of great quotes from M and I think you should keep him at the center. If you want to paraphrase an important idea in one of those books, do that rather than quote it since that breaks up the flow of your essay. You should cite those sources, but you don't need to quote them. It's difficult to smoothly integrate quotes into your own words--using less of them helps you smooth out your own writing.
+
+Would be nice to end with a more historiographical conclusion.
+
+Shaping up overall, and will improve quickly once you spend more time making sure every single sentence is clearly formulated.
 
 
 ## Autumn
